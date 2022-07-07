@@ -13,10 +13,10 @@ date: 2019-02-15
 
 <br>
 
-A passionate of tech, innovation and physics with 2 years of expertise in general analysis 
+A passionate of tech, innovation and physics with expertise in data analysis  
 <br>
 environment, graduated of Photonics Engineering and looking to collaborate in Analysis/ 
-Photonics projects.
+Photonics, or Cybersecurity projects.
 
 <br>
 <br>
